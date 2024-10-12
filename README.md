@@ -1,4 +1,4 @@
-# es2024-studentcode-lab2-
+# es2024-65030289-lab2
 
 ![65030289___16](https://github.com/user-attachments/assets/8550a8d3-4127-496c-b0dd-f9594a47a990)
 
